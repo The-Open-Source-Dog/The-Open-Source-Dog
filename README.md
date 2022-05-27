@@ -1,20 +1,20 @@
 A very fluffy puppy.
-Have Autism and ADHD
-I use a macbook, sory linux fans (:
-favorite color is blue.
-I may or may not have a YouTube channel
-recommended shows: 
+Have Autism and ADHD.  
+I use a macbook, sory linux fans (:  
+favorite color is blue.  
+I may or may not have a YouTube channel.  
+Recommended Shows: 
 (you need a Nebula subscription)
-HAI crime spree (it's actually pretty good it's the predecessor to jet lag)
-tom scot: money
-available on YouTube and nebula
-Hai
-mustard
+HAI Crime Spree (it's actually pretty good it's the predecessor to jet lag)
+Tom Scot: Money  
+Available on YouTube and nebula
+Half as interesting
+Mustard
 Polymater
 Wendover
 René Ritchie
 Jet lag
 YouTube only
-mental outlaw
+Mental Outlaw
 Snazzy labs
 
