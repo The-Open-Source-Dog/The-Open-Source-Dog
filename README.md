@@ -7,14 +7,14 @@ Recommended Shows:
 (you need a Nebula subscription)
 HAI Crime Spree (it's actually pretty good it's the predecessor to jet lag)
 Tom Scot: Money  
-Available on YouTube and nebula
-Half as interesting
-Mustard
-Polymater
-Wendover
-René Ritchie
-Jet lag
-YouTube only
-Mental Outlaw
-Snazzy labs
+Available on YouTube and nebula:
+Half as interesting,
+Mustard,
+Polymater,
+Wendover,
+René Ritchie,
+Jet lag,
+YouTube only:
+Mental Outlaw,
+Snazzy labs.
 
